@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Marie-gaub
+- 👀 I’m interested in marine energies
+- 🌱 I’m currently learning fluid dynamics
